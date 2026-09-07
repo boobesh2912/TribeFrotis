@@ -14,6 +14,8 @@ Every piece of content should move towards:
 
 > Inquiry → Call → Booking
 
+##Positioning
+END-TO-END CORPORATE FITNESS COMPANY- THIS BRAND MESSAGE MUST RVEOLVE AROUD EVERY CONTENT
 ---
 
 ## Core Content Strategy (Corporate)
