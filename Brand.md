@@ -265,3 +265,151 @@ I’m calling this out clearly:
 3. **Never drift into gym language**
    → This will kill your differentiation instantly
 
+🎭 Tone by Vertical
+1. Adults (B2C)
+
+Core Tone:
+Energetic • Playful • Results-driven • Relatable
+
+How it should feel:
+
+High energy
+Fun-first, not effort-first
+Slightly teasing
+Social and community-driven
+
+Messaging focus:
+
+“You’ll enjoy this”
+“You’ll stay consistent”
+“You’ll actually show up”
+
+Language style:
+
+Tanglish heavy
+Casual
+Conversational
+
+Content vibe:
+
+Friends playing
+Laughing, competing
+Movement without pressure
+
+What to avoid:
+
+Serious fitness talk
+Technical workout language
+Intimidating tone
+2. Kids (B2C)
+
+Core Tone:
+Playful • Encouraging • Parent-reassuring • Development-focused
+
+Dual-layer communication:
+
+Kids see: Fun, games, excitement
+Parents see: Growth, safety, development
+
+How it should feel:
+
+Safe and structured
+Positive and uplifting
+Energetic but not chaotic
+
+Messaging focus:
+
+“Your kid becomes more active”
+“Builds strength, coordination, confidence”
+“Less screen time, more movement”
+
+Language style:
+
+Simple English (mostly)
+Light, friendly tone
+
+Content vibe:
+
+Kids running, jumping, playing
+Smiles + activity
+Visible improvement over time
+
+What to avoid:
+
+Hardcore fitness language
+Pressure or performance stress
+Over-promising outcomes
+3. Corporate (B2B)
+
+⚠️ This is where discipline matters. Don’t make it boring—but don’t make it childish either.
+
+Core Tone:
+Professional • Outcome-driven • Structured • Engaging
+
+How it should feel:
+
+Organized
+Valuable
+Worth the company’s time & money
+
+Messaging focus:
+
+Employee engagement
+Team bonding
+Energy & participation
+Break from routine work
+
+Language style:
+
+Clear English
+Minimal slang
+Slight warmth (not too stiff)
+
+Content vibe:
+
+Teams participating
+Organized events
+Group energy
+
+What to avoid:
+
+Meme-heavy tone
+Over-playfulness
+Casual slang overload
+🔗 Shared Brand Voice (Across All Verticals)
+
+No matter the audience, this should stay consistent:
+
+We are:
+
+Energetic
+Community-first
+Movement-driven
+Experience-focused
+
+We always communicate:
+
+Activity over theory
+Participation over perfection
+Consistency over intensity
+🚫 Non-Negotiables (Critical)
+Never position as a gym
+Never compare or oppose gyms
+Never use “workout-heavy” identity
+Never guilt people into fitness
+⚠️ Final Clarity (Important)
+
+Right now your biggest risk is this:
+
+👉 Adult = fun
+👉 Kids = development
+👉 Corporate = events
+
+This can feel like 3 different brands if not handled properly.
+
+So the glue is:
+
+Everything is driven by movement through games.
+
+If that stays consistent, brand stays strong.
+If that breaks, everything becomes random.
