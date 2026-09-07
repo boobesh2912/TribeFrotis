@@ -11,6 +11,7 @@ Every piece of content must do at least one of the following:
 * Make people feel “this looks fun”
 * Push them to try a session
 
+* POSITIONING : GET FIT BY PLAYING - EVERY CONTENT WE DO SHOUDL REVOLEVE AROUDN THIS BRAND MESSAGE
 ---
 
 ## Core Content Strategy (Adult Page)
